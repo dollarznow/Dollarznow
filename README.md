@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋👯 I’m looking to collaborate on anything that makes money online. I have heaps of ideas and miny business's online but need a group of motivated people to make some really good coin
 
 <!--
 **dollarznow/Dollarznow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
